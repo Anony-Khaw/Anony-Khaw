@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning R/Python/Matlab
 - 💞️ I’m looking to collaborate on Nthg for now
 - 📫 How to reach me .. You can't .. i not form this space
-- 😄 Pronouns: ...
+- 😄 Pronouns: 🐨
 - ⚡ Fun fact: I have a porject and im a year behind the ddl .. 
 
 <!---
